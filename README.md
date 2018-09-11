@@ -1,0 +1,2 @@
+# mehmetgokkayacom-yonlendirme
+yonlendirme
